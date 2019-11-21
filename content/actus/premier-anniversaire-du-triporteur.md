@@ -17,4 +17,4 @@ Après l'achat d'un triporteur, le choix des cordistes de Montchat Perché s'est
 
 L'assistance électrique permet de repousser progressivement les limites géographiques, prioritairement pour les rendez-vous mais aussi lors de la réalisation des interventions, quand la nature des travaux le permet.
 
-![](/images/flowers001min.jpg)
+![null](/images/flowers001min.jpg)
