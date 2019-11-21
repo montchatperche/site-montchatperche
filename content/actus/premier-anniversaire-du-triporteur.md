@@ -16,3 +16,5 @@ Paul est trésorier de l'association Les Boîtes à vélo - Lyon Métropole, et 
 Après l'achat d'un triporteur, le choix des cordistes de Montchat Perché s'est porté sur un bi-porteur, un bon complément pour partir en intervention en binôme, avec le matériel.
 
 L'assistance électrique permet de repousser progressivement les limites géographiques, prioritairement pour les rendez-vous mais aussi lors de la réalisation des interventions, quand la nature des travaux le permet.
+
+![](/images/flowers001min.jpg)
